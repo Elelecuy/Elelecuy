@@ -2,8 +2,3 @@
   👀
  EEEEEEEEEEEEEEEEEE
 CHeck
-www
-dddd
-nana
-ggggggggg
-nj
